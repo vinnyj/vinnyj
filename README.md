@@ -1,5 +1,12 @@
-### Hi there 👋
+### Sup. 😶
 
+- I mostly ⭐ things, I'm interested in.
+- Any repo here is a product of random bursts of motivation.
+- Any stale ones are due to procrastination.
+
+- Telegram: [@v_DeNovo](https://t.me/v_DeNovo)
+- Twitter: [@subvertedheart](https://twitter.com/subvertedheart)
+- Discord: `VinnyJ#7254`
 <!--
 **vinnyj/vinnyj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
